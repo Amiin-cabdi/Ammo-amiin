@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **amiincabdishakuur64@gmail.com**
 
-- 📄 Know about my experiences [video editing](video editing)
+- 📄 Know about my experiences **VIDEO EDITOR**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
